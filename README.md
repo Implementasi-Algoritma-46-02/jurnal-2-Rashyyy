@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Mohammad Rasya Maessa Nugraha 
 
-NIM : 
+NIM : 607062400020
 
 ## Instruksi
 
